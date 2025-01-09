@@ -1,4 +1,4 @@
-#  AI Uprising: Global UFO Files: Governments Reveal Their Secrets - Unidentified Aerial Phenomena Investigations
+#  Global UFO Files: Governments Reveal Their Secrets - Unidentified Aerial Phenomena Investigations
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=K9m0prFmie0
 
